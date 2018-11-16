@@ -23,7 +23,7 @@ With the Vericoolers, Square Baby supplies the baby dishes delivered within an e
 Square Baby currently is shipped in Vericoolers to other California locations, Washington, Oregon, Idaho, Utah, Nevada and Arizona, and has ideas to expand distribution.
 
 Innovative packaging helps baby food's different kid on the market
-The convenience and barrier properties of RPC Superfos’s (rpc-superfos.com) injection moulded SuperLock® polypropylene pot may be the ideal option for a new range of readymade organic and natural baby foods at this time on shelf in major supermarkets in Sweden.
+The convenience and barrier properties of RPC Superfos's (rpc-superfos.com) injection moulded SuperLock polypropylene pot may be the ideal option for a new range of readymade organic and natural baby foods at this time on shelf in major supermarkets in Sweden.
 
 Lovemade may be the brainchild of Silvia Wulff, a good Danish entrepreneur and mom of two. The eight kinds in the number are locally manufactured, which is unique in this category, and her team includes two Danish superstar chefs, vouching for the high-quality ingredients, advanced taste and texture.
 
@@ -35,7 +35,7 @@ The barrier labels of the SuperLock pot provide a long shelf lifestyle, enabling
 
 " Plastic has low fat which means reduced transport costs and reduced environmental impact. I likewise appreciate the fact that SuperLock is normally well suited for autoclaving, so we are able to ensure suitable shelf life and at exactly the same time deliver real and natural basic products, avoiding the need for additives or preservatives. Furthermore, the pot could be re-used at home multiple times, which adds benefit to your product," says Wulff.
 
-The eye-catching artwork design of the labels increases Lovemade’s on-shelf appeal, while the base of the pack is transparent, so that it is possible to start to see the contents during purchase, enabling the packaging to communicate authenticity, freshness and a wholesome nutritious product. 
+The eye-catching artwork design of the labels increases Lovemade's on-shelf appeal, while the base of the pack is transparent, so that it is possible to start to see the contents during purchase, enabling the packaging to communicate authenticity, freshness and a wholesome nutritious product. 
 
 " Our goal is to sell something that fully calls for baby food to a higher level: organic, high-quality ingredients that are cooked next gourmet quality recipes, served in a safe and user-friendly pack of low excess weight that works extremely well again and again in the home, " concludes Wulff.
 
@@ -46,7 +46,7 @@ Teething is a period when most households are actually sleep-deprived and stress
 
 Meals come in stand-up, resealable pouches with 15 frozen stars to enjoy frozen or perhaps warmed for clean puree. The portions are created to help father and mother and caregivers customize servings to meet individual needs and lessen food waste.
 
-### Bambino's star shaped dishes include:
+### Bambino's Star Shaped Dishes Include:
  - Hearty Stew - Organic and natural Filet Mignon, Carrots  Celery, Onion, Cold Pressed Essential Olive Oil, Barley
  - Veggies With Chicken - Poultry, Carrot, Celery, Organic Barley
 
@@ -66,7 +66,7 @@ The first product line of its kind in the jar segment, Plum's Baby Bowls incorpo
 
 " Making the transition to food is a major milestone for parents and babies. Infants eat with all their senses, making spoon feeding a good way to get started on introducing the vibrant hues, textures and complicated flavors that are hence important for nurturing palate production, " says Dr. Alan Greene, pediatric advisor and person in Plum's Wellness Advisory Panel. " Baby Bowls enjoy interactivity between parent and child, with a thoughtful style that showcases the stunning colors of Plum's recipes. "
 
-### Each bowl features:
+### Each Bowl Features:
  - Easy storage: a domed lid for seamless resealing and stacking
  - Intuitive design: a light dish that rests in the palm of the side, making it possible for father and mother to spoon out every previous bite
  - Thoughtful details: a built-in spoon rest and on-pack freshness marker

@@ -6,7 +6,7 @@ category: Package Mistake
 
 ![](/images/6.jpg)
 
-##Most Commonly Mistake During Manufactured
+## Most Commonly Mistake During Manufactured
 
 Not many people are the "heroes of the day" in terms of the packaging design.
 Incorrect labeling that misleads customers. Awful styles, which discourage a order. Excessive utilization of plastic.
@@ -23,7 +23,7 @@ It should not get misleading, because almost all of the customers choose product
 ### 2. Wasting Material & Generating Unnecessary Waste
 There is more emphasis on the environmental side of doing business nowadays. We covered that in greater detail in one of our articles. Consumers focus on recyclable packaging a lot more than before. Especially big companies are anticipated to health care for the environment.
 
-Here’s an example - the food industry is still preparing for changes in considering packaging design.
+Here's an example - the food industry is still preparing for changes in considering packaging design.
 
 Just just like a half a boiled egg, packed in a non-recyclable plastic tray and wrapped with foil.
 
@@ -40,7 +40,7 @@ There are situations though when wrong labeling can pose a threat. That is mainl
 ### 5 "I cannot Open This"
 This is probably the most frequent complaint that customers have against packaging.
 
-Even the greatest product will ultimately be a let-straight down if the packaging is impossible to open. If you want scissors to available the packaging of… scissors, you then know something is performed wrong.
+Even the greatest product will ultimately be a let-straight down if the packaging is impossible to open. If you want scissors to available the packaging of scissors, you then know something is performed wrong.
 
 ### 6. Packaging Ought To Be Emotional
 The mistake here is the lack of an psychological bond. Every customer loves to have certain thoughts towards a manufacturer or a product.

@@ -14,7 +14,7 @@ The liner recycling program can help makes divert glassine paper liner (waste fr
 
 <!-- more -->
 
-" With our liner recycling system, brands will have a solution which will enable them to reduce the environmental impact from discarded label liner waste, " said Anil K. Sharma, vice president and general supervisor, Label and Graphic Products, South Asia Pacific and Sub­Saharan Africa,  Avery Dennison. " We happen to be delighted to spouse with L'Oreal Australia and Wasteflex upon this sustainability journey. "
+" With our liner recycling system, brands will have a solution which will enable them to reduce the environmental impact from discarded label liner waste, " said Anil K. Sharma, vice president and general supervisor, Label and Graphic Products, South Asia Pacific and Sub-Saharan Africa,  Avery Dennison. " We happen to be delighted to spouse with L'Oreal Australia and Wasteflex upon this sustainability journey. "
 
 " The savings from this program have already been significant, but the biggest benefit for L'Oreal Australia has been able to meet our zero waste to landfill through the services and expertise of Wasteflex and Avery Dennison, " said David O'Leary, countrywide logistics manager, L'Oreal Australia.
 

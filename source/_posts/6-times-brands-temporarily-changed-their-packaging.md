@@ -1,6 +1,6 @@
 ---
 title: 6 Times Brands Temporarily Changed Their Packaging
-date: 2018-9-14 09:00:00
+date: 2018-11-10 09:00:00
 category: Package Design
 ---
 
