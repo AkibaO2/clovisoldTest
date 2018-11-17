@@ -5,7 +5,7 @@ layout: "about"
 ---
 
 <center>
-![](/images/logo.jpg)
+![](/img/logo.png)
 </center>
 
 
