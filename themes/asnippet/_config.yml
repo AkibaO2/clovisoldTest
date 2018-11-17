@@ -19,14 +19,14 @@ menu:
   icon:
 
 ## favicon
-favicon: /images/favicon.ico
+favicon: /img/favicon.ico
 
 ## Feed
 rss: /atom.xml
 
 ## Carousel
 carousel:
-  img: './images/201.jpg'
+  img: './img/201.jpg'
   url: 'javascript:'
 
 # 各个小工具的设置
