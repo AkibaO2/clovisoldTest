@@ -4,7 +4,7 @@ date: 2018-10-25 08:00:00
 category: Package Design
 ---
 
-![](/images/1.jpg)
+![](/img/1.jpg)
 
 You'll find a great deal of advice and inspiration on packaging design from these free online language resources.
 The web is an excellent thing, filled with resources and inspiration for people considering packaging design. But, sometimes, too much choice could be confusing, thus we've chosen the very best packaging design methods to assist you really get to grips with it.

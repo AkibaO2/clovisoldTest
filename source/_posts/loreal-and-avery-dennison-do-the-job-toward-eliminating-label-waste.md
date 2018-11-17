@@ -4,7 +4,7 @@ date: 2018-9-14 10:00:00
 category: Sustainable Package Strategies
 ---
 
-![](/images/3.jpg)
+![](/img/3.jpg)
 
 ## L'Oreal And Avery Dennison
 

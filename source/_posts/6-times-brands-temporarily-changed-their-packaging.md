@@ -4,7 +4,7 @@ date: 2018-11-10 09:00:00
 category: Package Design
 ---
 
-![](/images/2.jpg)
+![](/img/2.jpg)
 
 ## Big brands wish to shake up their product packaging with limited edition choice designs. 
 

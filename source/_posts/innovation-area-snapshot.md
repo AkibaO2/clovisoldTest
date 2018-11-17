@@ -4,7 +4,7 @@ date: 2018-10-30 12:00:00
 category: The Pack Hub
 ---
 
-![](/images/7.jpg)
+![](/img/7.jpg)
 
 ## 8 Innovation
 

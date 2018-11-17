@@ -4,7 +4,7 @@ date: 2018-9-27 14:10:00
 category: Quality Process
 ---
 
-![](/images/8.jpg)
+![](/img/8.jpg)
 
 ## Steve Jobs Was Well-Known For Saying 
 "It's not completed until it ships." But we have a different undertake this

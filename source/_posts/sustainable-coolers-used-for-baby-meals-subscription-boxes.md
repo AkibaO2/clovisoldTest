@@ -4,7 +4,7 @@ date: 2018-11-02 12:33:00
 category: Sustainable Package Strategies
 ---
 
-![](/images/4.jpg)
+![](/img/4.jpg)
 
 ## Sustainable Coolers Used
 

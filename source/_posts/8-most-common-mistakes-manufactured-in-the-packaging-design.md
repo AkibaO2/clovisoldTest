@@ -4,7 +4,7 @@ date: 2018-10-09 09:00:00
 category: Package Mistake
 ---
 
-![](/images/6.jpg)
+![](/img/6.jpg)
 
 ## Most Commonly Mistake During Manufactured
 

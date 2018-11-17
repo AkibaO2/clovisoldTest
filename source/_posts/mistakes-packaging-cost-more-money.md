@@ -4,7 +4,7 @@ date: 2018-9-08 08:30:00
 category: Package Mistake
 ---
 
-![](/images/5.jpg)
+![](/img/5.jpg)
 
 ## Mistakes Cost Money 
 
